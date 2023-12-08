@@ -17,9 +17,7 @@
 
 ![04](https://github.com/YongjiangChen/CAD-and-graphic-design/assets/73269209/5113332d-b3b1-414c-9e83-c09a0f7a23c2)
 
-![03](https://github.com/YongjiangChen/CAD-and-graphic-design/assets/73269209/0a53b01d-9a92-4755-8c3b-a8ff15a725f9)
-
-<img width="233" alt="Screenshot 2023-12-08 023935" src="https://github.com/YongjiangChen/CAD-and-graphic-design/assets/73269209/43fa0b4f-6ebd-4e44-8f96-fcd010dcd829">
+![02](https://github.com/YongjiangChen/CAD-and-graphic-design/assets/73269209/dfff5a0b-3aa2-4451-bf94-f74d82715d42)
 
 
 ![DALL·E_2023-11-26_23 47 18_-_A_realistic_landscape_illustration_of_a_smart_baby_bassinet_project_in_use,_featuring_a_baby_resting_inside_the_bassinet _Include_white_parents_using_](https://github.com/YongjiangChen/3D-modelling-and-grphic-design/assets/73269209/dfd20860-b09e-439b-ab00-140d7c77559a)
