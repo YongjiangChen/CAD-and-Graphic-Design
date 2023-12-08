@@ -21,6 +21,7 @@
 
 <img width="569" alt="baby guardian logo" src="https://github.com/YongjiangChen/3D-modelling-and-grphic-design/assets/73269209/1c763d4d-e39d-46cc-beca-2b433b44ff27">
 
-![logo](https://github.com/YongjiangChen/3D-modelling-and-grphic-design/assets/73269209/2a257b79-9d66-4d6e-96f0-327e2ba2fe14)
+<img width="539" alt="Screenshot 2023-12-08 022555" src="https://github.com/YongjiangChen/3D-modelling-and-grphic-design/assets/73269209/0a939d07-5a0d-4d53-9ea7-973f9c199c93">
+
 
 
